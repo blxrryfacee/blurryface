@@ -10,7 +10,7 @@
 </p>  
 <p align="center">
 <p align="center">
-<b>" Scared of my own cieling, Scared I'll die of uncertainty. "</b>
+<b>" Scared of my own ceiling, Scared I'll die of uncertainty. "</b>
 </p>
 <p align="center">
  ${\textsf{\color{#d11515} system, persecutor, semi-verbal, ask for c+h}}$
